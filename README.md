@@ -2,6 +2,7 @@
 "You can always become the person you would have liked to be." 
 
 Deskripsi
+
 Kutipan ini menyoroti transformasi pribadi dan kekuatan pilihan. Napoleon Hill mengingatkan kita bahwa tidak peduli keadaan kita di masa lalu atau saat ini, kita memiliki kemampuan untuk mendefinisikan ulang diri kita sendiri dan mengejar versi kehidupan yang benar-benar kita inginkan. Ini adalah pesan harapan, penentuan nasib sendiri, dan pertumbuhan berkelanjutan—mendorong orang untuk berhenti menyesali siapa mereka dan mulai membangun siapa yang mereka inginkan.
 
 Pelajaran Utama
